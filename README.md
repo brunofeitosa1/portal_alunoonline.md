@@ -2,4 +2,4 @@
 Bruno Falcão Feitosa (@brunofeitosa1)
 Eryck Targino (@erycktargino)
 João Pedro(@pilyard)
-Rodrigo Lima (sem git)
+Rodrigo Lima (@rodrigolimadv)
